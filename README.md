@@ -1,2 +1,1 @@
 # Kebijakan-Privasi-Surxrat
-Gegeggsgsvgs
