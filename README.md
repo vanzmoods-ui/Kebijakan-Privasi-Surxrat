@@ -1,1 +1,1 @@
-# Kebijakan-Privasi-Surxrat
+# kebijakan-privasi-surxrat
